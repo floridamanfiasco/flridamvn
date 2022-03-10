@@ -1,5 +1,5 @@
 
-__dallas/ame__
+**deimos**/dallas/ame
 
 male, he/him/his
 hispano + diagnosed autistic
