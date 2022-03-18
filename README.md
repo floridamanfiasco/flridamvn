@@ -1,7 +1,7 @@
 __america__/dallas
 
-male, __he/him/his__
-hispanic minor
+male, __he/him/his__,
+hispanic, minor
 
 main carrd: being remade !
 
