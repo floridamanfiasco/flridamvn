@@ -11,3 +11,5 @@ discord is __flridamvn#2005__
 
 
 __**DNI IF YOU HARASS/FAKECLAIM OTHERS FOR THEIR IRLS. ITS PETTY AND IDIOTIC, IRLS ARE UNCONTROLLABLE.**__
+
+*byi i keyboard spam and have trouble typing! expect lots of typos lolsies*
