@@ -1,11 +1,13 @@
+__america__/dallas
 
-**deimos**/dallas/ame
+male, __he/him/his__
+hispanic minor
 
-male, he/him/his
-hispano + diagnosed autistic
-
-main carrd: https://my-mojave.carrd.co
+main carrd: being remade !
 
 irls carrd: https://dalsirls.carrd.co
 
 discord is __flridamvn#2005__
+
+
+__**DNI IF YOU HARASS/FAKECLAIM OTHERS FOR THEIR IRLS. ITS PETTY AND IDIOTIC, IRLS ARE UNCONTROLLABLE.**__
